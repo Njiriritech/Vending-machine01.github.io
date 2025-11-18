@@ -4,5 +4,5 @@ Smart and reliable water vending machines designed for efficiency and small busi
 
 ## Contact
 - **Phone:** 0795805814  
-- **Email:** kevinnjiriri23@gmail.com  
+- **Email:** kevinatm24@gmail.com 
 - **Location:** Nairobi, Kenya
